@@ -1,6 +1,6 @@
 # how-to-play-cnc-ra2-online
 
-Download this torrent
+Download this torrent of the game
 [Magnet link](https://tinyurl.com/cncra2nacho)
 
 Download the latest release:
